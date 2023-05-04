@@ -4,11 +4,11 @@ Make the world more convenient.
 
 ## Top News
 
-> Posted on January 11, 2023
+> Posted on May 5, 2023
 
-**Plan-V Studio is about to open recruiting for spring 2023**
+**Plan-V Studio 2023 recruitment will begin soon!**
 
-We will post the registration form and access at a later date. 
+We will post the registration form and access at 16:00:00 May 7, 2023 (GMT). 
 
 We look forward to your joining us!
 
