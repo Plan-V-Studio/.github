@@ -4,7 +4,7 @@ Make the world more convenient.
 
 ## Top News
 
-> Posted on May 5, 2023
+> Updated on May 5, 2023
 
 **Plan-V Studio 2023 recruitment will begin soon!**
 
